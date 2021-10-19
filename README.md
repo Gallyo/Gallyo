@@ -2,7 +2,6 @@ DISCORD - Congo Bongo#0001
 
 YOUTUBE - https://www.youtube.com/channel/UCov_ckiVmNVTowrZK98zY4Q
 
-TEAM TUDOU - https://tudou.team/
-
+WEBSITE - https://tudou.fun/
 
 **I don't code I just uplod**
